@@ -1,4 +1,4 @@
 2014-10-06-indiana
 ==================
 
-Workshop at Indiana University, October 2014
+Workshop at Indiana University, October 2014.
